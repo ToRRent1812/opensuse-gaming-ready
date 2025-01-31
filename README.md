@@ -1,0 +1,1 @@
+# opensuse-gaming-ready
